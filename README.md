@@ -1,9 +1,15 @@
 **🥰Nerlande jen claude**
+
 **👸eu sou estudiosa**
+
 😻🤙Tenho 17 anos
+
 👩‍❤️‍💋‍👨 eu só tenho um amor da vida
+
 💃💯 eu gosto de dança
+
 🙏 eu tenho fé em todas coisa que faço Amém
+
 🌷👩‍❤️‍👩 _eu tenho uma princesa da minha vida que é a minha mãe que eu amo ela tanto_
 
 
